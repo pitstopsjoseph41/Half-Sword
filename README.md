@@ -224,4 +224,4 @@ Half Sword is offered as a full free version with all features and updates inclu
 Are you ready to dive into the brutal world of medieval combat? Don’t wait any longer! Click the download button above and start your journey with Half Sword today!
 
 ---
-**Last updated:** 2026-09-20 07:09:24 UTC
+**Last updated:** 2026-09-20 12:40:06 UTC
